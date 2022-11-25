@@ -1,0 +1,2 @@
+# SAYNA-MARKETING-EVALUATIONF-112022
+évaluation finale de SAYNA ACADEMY sur FEMME corrigée.
